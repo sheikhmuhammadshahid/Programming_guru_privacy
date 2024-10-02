@@ -1,5 +1,5 @@
-# Programming_guru_privacy
-Privacy Policy
+
+**Privacy Policy**
 
 
 1. Introduction
